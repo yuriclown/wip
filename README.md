@@ -1,5 +1,3 @@
-recomended viewing zoomed in 150%
-
 ![](https://files.catbox.moe/1ykjv3.webp)
 
 ![](https://files.catbox.moe/nk4pyb.webp)
