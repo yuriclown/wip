@@ -12,6 +12,8 @@
 
 ![](https://files.catbox.moe/fjuglr.png)
 
+my birthday is in 8 days if you even care
+
 ![](https://files.catbox.moe/zppilv.png)
 
 all art used by lordofdorknessgundam on tumblr
