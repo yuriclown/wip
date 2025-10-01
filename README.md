@@ -1,4 +1,4 @@
-HEAVY WIP RN BRUH
+![](https://files.catbox.moe/9rmfy7.png)
 
 ![](https://files.catbox.moe/eysnb9.png)
 
@@ -7,5 +7,7 @@ HEAVY WIP RN BRUH
 <p align="center">
   <img src="https://files.catbox.moe/swa8sx.png" />
 </p>
+
+![](https://files.catbox.moe/zppilv.png)
 
 all art used by lordofdorknessgundam on tumblr
