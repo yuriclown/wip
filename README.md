@@ -12,7 +12,7 @@
 
 ![](https://files.catbox.moe/fjuglr.png)
 
-my birthday is in 5 days if you even care
+my birthday is in 4 days if you even care
 
 ![](https://files.catbox.moe/zppilv.png)
 
