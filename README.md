@@ -12,7 +12,7 @@
 
 ![](https://files.catbox.moe/fjuglr.png)
 
-my birthday is in 2 days if you even care
+idk what to put here. today is homecoming.
 
 ![](https://files.catbox.moe/zppilv.png)
 
